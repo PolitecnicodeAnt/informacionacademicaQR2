@@ -1,1 +1,0 @@
-# informacionacademicaQR2
